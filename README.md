@@ -1,5 +1,5 @@
 # 💫 About Me:
-✨ Fullcycle developer and your [maybe-not-so-]local handywoman.<br>
+Fullcycle developer and your [maybe-not-so-]local handywoman.<br>
 
 
 ## 🌐 Socials:
